@@ -1,1 +1,1 @@
-En este directorio van los documentos explicativos del proyecto
+Estudiante 1 y 2: Julian Camilo Rivera Monroy - 202013338 - jc.riveram1@uniandes.edu.co
